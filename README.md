@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/larissa-beatrizga/](https://www.linkedin.com/in/larissa-beatrizga/)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
